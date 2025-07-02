@@ -11,7 +11,7 @@
 ⛧°.⋆༺♱༻⋆.°⛧
   
 
- 〃✦ ┆ [*Rentry*](https://rentry.co/explosive-shrimp) ؛ ଓ [*Strawpage*](https://exploshrimp.straw.page/)
+ 〃✦ ┆ [*Rentry*](https://rentry.co/exploshrimp) ؛ ଓ [*Strawpage*](https://exploshrimp.straw.page/)
 
 
 
